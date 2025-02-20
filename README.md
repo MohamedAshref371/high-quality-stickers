@@ -1,1 +1,1 @@
-# high-quality-stickers
+# High Quality Stickers
